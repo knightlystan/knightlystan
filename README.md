@@ -2,7 +2,7 @@
   these fools live to see another christmas..
 </p>
 <p align="center">
-  <img src="https://meawsource.carrd.co/assets/images/image28.png?v=4eead08e" width="500"/>
+  <img src="https://meawsource.carrd.co/assets/images/image30.png?v=d471d2d2" width="500"/>
 </p>
 <p align="center">
 heavy c+h comf  𓏵  usually on w2i
