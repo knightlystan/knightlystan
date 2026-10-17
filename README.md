@@ -1,13 +1,10 @@
-<p align="center">
-  might be remaking dis stuff
-</p>
-<p align="center">
-heavy c+h comf  𓏵  usually on w2i
-</p>
-<p align="center">
-feel free to talk to me B)
-</p>
-
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/1f0938cb-32b7-4c9b-9024-b93af49f4175" />
-<div/>
+<p align="center">
+  i'm lazy to remake this
+</p>
+<img src="https://i.pinimg.com/1200x/35/db/0f/35db0f432d32bcb94c51f06fd7fbb7e0.jpg" width="480" height="360" />
+<p align="center">
+  c+h encouraged! ships iwc<br>
+  <a href="https://pronouns.cc/@butterstotch">about me</a>ㅤㅤ<a href="https://ditf.atabook.org/">sign ata!</a>
+</p>
+</div>
