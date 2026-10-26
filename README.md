@@ -2,8 +2,6 @@
   <p align="center">
   c+h encouraged! ships iwc<br>
   #lookingforfriends (hopeful)<br>
-  if you romantically yumeship with any of the<br>
-  children please dni, thank you<br>
   <a href="https://pronouns.cc/@butterstotch">about me</a>ㅤㅤ<a href="https://ditf.atabook.org/">sign ata!</a>
   </p>
 </div>
