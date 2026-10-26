@@ -6,7 +6,7 @@
   </p>
 </div>
 <p align="center">
-   thank yt for this gem
+   thank youtube for this gem
  </p>
   <div align="center">
 <video src="https://github.com/user-attachments/assets/c1dd6552-e572-40c4-a80d-d0e971350a8f">
