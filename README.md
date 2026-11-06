@@ -1,15 +1,4 @@
-
-<div align="center">
-  <img width="700" height="530" src="https://i.pinimg.com/736x/c7/41/67/c741672ba1624e05e84ddf751d758d7c.jpg">
-
-  <p align="center">
-  c+h encouraged! ships iwc<br>
-  #lookingforfriends (hopeful)<br>
-  <a href="https://pronouns.cc/@butterstotch">about me</a>ㅤㅤ<a href="https://ditf.atabook.org/">sign ata!</a>
-  </p>
-</div>
-<p align="center">
-   thank youtube for this gem
- </p>
-  <div align="center">
-<video src="https://github.com/user-attachments/assets/1ff866e5-23f8-4f0c-84cd-905efe4e27ae">
+<img align="right" width="350" height="420" alt="image" src="https://meawsource.carrd.co/assets/images/image42.png?v=be247ec6" /> ‎
+<p align="center"> <img width=“250” height="220" alt="image" src="https://meawsource.carrd.co/assets/images/image43.png?v=b7e6d2fe" /> ‎</p>
+<p align="center"> $\color{#B59197}{\text{c + hㅤencouraged !}}$ </p>
+<p align="center"> $\color{#B59197}{\text{w2iㅤunlessㅤfriend}}$ </p>
