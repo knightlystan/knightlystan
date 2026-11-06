@@ -4,5 +4,3 @@
 <p align="center"> $\color{#D98A99}{\text{c + hㅤencouraged !}}$ </p>
 <p align="center"> $\color{#DE9398}{\text{w2iㅤunlessㅤfriend}}$ </p>
 <p align="center"> $\color{#E39C98}{\text{sociallyㅤawkward}}$ </p>
-
-<p align="center"> <a href="https://ditf.atabook.org/>$\color{#E39C98}{\text{sociallyㅤawkward}}$</a> </p>
