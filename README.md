@@ -4,3 +4,4 @@
 <p align="center"> $\color{#D98A99}{\text{c + hㅤencouraged !}}$ </p>
 <p align="center"> $\color{#DE9398}{\text{w2iㅤunlessㅤfriend}}$ </p>
 <p align="center"> $\color{#E39C98}{\text{sociallyㅤawkward}}$ </p>
+<div align="center"><a href="https://ditf.atabook.org/"><img width="200" height="120" src="https://meawsource.carrd.co/assets/images/image01.png?v=939df97a"></a> <a href="https://pronouns.cc/@butterstotch"><img width="200" height="120" src="https://meawsource.carrd.co/assets/images/image02.png?v=939df97a"></a></div>
