@@ -4,3 +4,5 @@
 <p align="center"> $\color{#D98A99}{\text{c + hㅤencouraged !}}$ </p>
 <p align="center"> $\color{#DE9398}{\text{w2iㅤunlessㅤfriend}}$ </p>
 <p align="center"> $\color{#E39C98}{\text{sociallyㅤawkward}}$ </p>
+<p align="center"><details><summary>$\\color{#AE9481}\\text{ㅤ🐾}$</summary>
+<a href="https://ditf.atabook.org/">atabook</a>ㅤㅤ<a href="https://pronouns.cc/@butterstotch">prns.cc</a></details></p>
